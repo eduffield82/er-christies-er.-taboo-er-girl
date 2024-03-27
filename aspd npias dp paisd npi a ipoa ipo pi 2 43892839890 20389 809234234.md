@@ -2,10 +2,12 @@ er
   voodoo i32 n2 inp ino2no i2oi  282 78020 2 9029 3ion23
 
 er
-  cai 89384 87 73890 03  no3 inono i3 onio ni34nio 34 893 34 io3 io4
+  cai 89384 87 73890 ![Unknown-28](https://github.com/eduffield82/er-christies-er.-taboo-er-girl/assets/160559076/b00c5549-23b0-4d86-b9fe-90db867f7363)
+03  no3 inono i3 onio ni34nio 34 893 34 io3 io4
 
 er
   gacne i iop o3inon i3 io io34o34 873 780930789  79083 0989 34 5
+![Unknown-14](https://github.com/eduffield82/er-christies-er.-taboo-er-girl/assets/160559076/4c3b1682-660d-42e9-96e4-2fd20fba883f)
 
 er
   school3 45iopi3pi nip n3pni 3pi nio3 pno poi3inpo n iop34 n58378 345 
